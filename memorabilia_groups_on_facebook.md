@@ -4,6 +4,7 @@
 * [Scout Patch Collectors](https://www.facebook.com/groups/323868214332022/)
 * [Official Scouting Memorabilia Collectors](https://www.facebook.com/groups/327003350976358/)
 * [Scout Patch Buyers/Sellers](https://www.facebook.com/groups/scoutpatchbuyerssellers/)
+* [2010 National Jamboree Patch and Memorabilia Collectors](https://www.facebook.com/groups/196525167549255/)
 * Add your group here!
 
 ## History and Preservation
